@@ -1,0 +1,1 @@
+# magnetometer_privacy_policy
